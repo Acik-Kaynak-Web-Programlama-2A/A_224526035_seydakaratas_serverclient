@@ -1,0 +1,1 @@
+# A_224526035_seydakaratas_serverclient
